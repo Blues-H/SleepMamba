@@ -1,1 +1,1 @@
-#better master one than engage with ten
+Anything one man can imagine, other men can make real
